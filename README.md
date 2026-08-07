@@ -1,2 +1,2 @@
 # amghezi
-just for test
+dor kolahash ghermezi
